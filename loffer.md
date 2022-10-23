@@ -166,7 +166,9 @@ von Neue Frankfurter Schule-Versagern unter dem Vorwand übler Nachrede zensiert
 also nicht im Sinne von nicht komisch finden, sondern *überhaupt* nicht *verstehen*,  
 [sich](http://www.zweitgeist.net/2010/01/das-postponierte-reflexivum/).
 
+Ich habe dann die Gesichter der PARTEIpolitiker mit dem [NPC Che Guevara-Meme](https://wojakparadise.net/wojak/4247) unkenntlich (oder vielleicht [als völlig hirnlos kenntlich](https://en.wikipedia.org/wiki/NPC_(meme))) gemacht und meine Meinung in Wort und [Bild](https://www.facebook.com/photo/?fbid=10229079339712695&set=pcb.10228984037050188) ohne direkten Bezug auf DIE PARTEI Ortsverband Tübingen wieder eingefügt und frei verbreitet.
+
 Dieses eigentlich lächerliche Beispiel ist aber ganz typisch für die sogenannte *Cancel-Kultur*, die aus **völliger Inkompetenz im Umgang mit Kontextkollaps** Diskussionsbeiträge, die über den Dümmsten Gemeinsamen Nenner hinausgehen, aus dem Diskurs löschen wollen.  
-Für angebliche Satiriker, für die das eigentlich elementares Handwerkszeug sein sollte, ist das natürlich besonders peinlich.
+Für angebliche Satiriker, für die das Spiel mit mehreren Bedeutungsebenen eigentlich elementares Handwerkszeug sein sollte, ist das natürlich besonders peinlich.
 
 # Was sagt der Ombudsmann dazu?
