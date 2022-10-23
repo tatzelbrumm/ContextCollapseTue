@@ -155,20 +155,29 @@ Dem Troll Benjamin Leder ist dieser Kontext bekannt, Tübinger PARTEIpolitikern 
 
 Im vorliegenden Fall habe ich aber durchaus respektlos satirisch aufgespießt, dass [die PARTEIpolitiker bei der Satire aus ihrem eigenen PARTEIorgan keinen Spaß verstehen](https://www.facebook.com/Tatzelbrumm/posts/pfbid0fhPcgvRB2EFtKvt6ZZHBQ3aL5bPEjozuEm9M2HvmPv5oQvwYQ1vEua9h4Lstc7tl).  
 Die Spaßpolitiker wollen der inhaltlichen politischen Auseinandersetzung    
-sich    
+[sich](http://www.zweitgeist.net/2010/01/das-postponierte-reflexivum/)    
 entziehen, indem sie mich unter Androhung, mich (wahrscheinlich bei der [deutschen Censoren](https://www.deutschestextarchiv.de/book/view/heine_reisebilder02_1827?p=236) getreulich nachempfundenen Künstlichen „Intelligenz“ der Facebook-Zensur) zu melden, dazu bringen wollen, meinen *gesamten* Post unter dem Vorwand, er erfülle **in der Kombination aus Text, Bildern und Kommentaren** den Tatbestand der üblen Nachrede, zu löschen und mich so mundtot zu machen.
 
 Es ergibt also die grundsätzliche Frage, ob ein zentraler Bestandteil kreativen Diskurses,
 
-> combining facts that no one has connected before
+>[combining facts that no one has connected before](https://www.facebook.com/nobelprize/photos/a.164901829102/10158192960034103/)
 
 von Neue Frankfurter Schule-Versagern unter dem Vorwand übler Nachrede zensiert werden soll, nur weil sie den Humor ihres eigenen PARTEIorgans nicht verstehen,  
 also nicht im Sinne von nicht komisch finden, sondern *überhaupt* nicht *verstehen*,  
 [sich](http://www.zweitgeist.net/2010/01/das-postponierte-reflexivum/).
 
-Ich habe dann die Gesichter der PARTEIpolitiker mit dem [NPC Che Guevara-Meme](https://wojakparadise.net/wojak/4247) unkenntlich (oder vielleicht [als völlig hirnlos kenntlich](https://en.wikipedia.org/wiki/NPC_(meme))) gemacht und meine Meinung in Wort und [Bild](https://www.facebook.com/photo/?fbid=10229079339712695&set=pcb.10228984037050188) ohne direkten Bezug auf DIE PARTEI Ortsverband Tübingen wieder eingefügt und frei verbreitet.
+Ich habe dann die Gesichter der PARTEIpolitiker mit dem [NPC Che Guevara-Meme](https://wojakparadise.net/wojak/4247) unkenntlich (oder vielleicht [als völlig hirnlos kenntlich](https://en.wikipedia.org/wiki/NPC_(meme))) gemacht und meine Meinung in Wort und [Bild](https://www.facebook.com/photo/?fbid=10229079339712695&set=pcb.10228984037050188) ohne namentliche Erwähnung von DIE PARTEI Ortsverband Tübingen wieder eingefügt und [frei verbreitet](https://www.facebook.com/Tatzelbrumm/posts/pfbid0iCSkV7bGKzgquonUHxGPirmSCPeXrZBXqsbnS7SXRqwUNhYTkAPqgyG8cT3j8Qifl).
 
 Dieses eigentlich lächerliche Beispiel ist aber ganz typisch für die sogenannte *Cancel-Kultur*, die aus **völliger Inkompetenz im Umgang mit Kontextkollaps** Diskussionsbeiträge, die über den Dümmsten Gemeinsamen Nenner hinausgehen, aus dem Diskurs löschen wollen.  
-Für angebliche Satiriker, für die das Spiel mit mehreren Bedeutungsebenen eigentlich elementares Handwerkszeug sein sollte, ist das natürlich besonders peinlich.
+Für angebliche Satiriker, für die das Spiel mit mehreren Bedeutungsebenen eigentlich elementares Handwerkszeug sein sollte, ist das natürlich besonders peinlich.  
+
+Ist ein auf **Kontextkollusion** basierender Witz, den ein Teil des Publikums eigentlich verstehen müsste, aber aus Borniertheit nicht verstehen will oder wirklich nicht versteht, üble Nachrede oder ein legitimer politischer Diskursbeitrag?    
+
+Es gibt auch noch andere Beispiele, die zum Beispiel mit dem wesentlich ernsteren Thema Antisemitismus    
+[sich](http://www.zweitgeist.net/2010/01/das-postponierte-reflexivum/)    
+auseinandersetzen:  
+
+* [Zum Ritual moralischer Rechtschaffenheit erstarrtes](https://twitter.com/lofferg/status/1458124729009643525) [9. November 1938-Gedenken](https://twitter.com/Tatzelbrumm/status/1458162886992441351) [als](https://twitter.com/lofferg/status/1458165342845476865) [frustriertes](https://twitter.com/Tatzelbrumm/status/1458202833187184643) [System](https://twitter.com/Tatzelbrumm/status/1458208236440592385) in [Analogie zur Physik](https://www.nobelprize.org/uploads/2021/10/popular-physicsprize2021-2.pdf#page=8)
+* [Tabuloses](https://www.facebook.com/ob.boris.palmer/posts/pfbid0xhgzEGKDZWgdCHqKLUpgp6eBMzzcyCfPXYsacbyKp6BEF6i4XSqRja7LzHPTBQ7Hl?comment_id=492511259589935) [Eingehen auf antisemitisches Trollen](https://www.facebook.com/ob.boris.palmer/posts/pfbid0xhgzEGKDZWgdCHqKLUpgp6eBMzzcyCfPXYsacbyKp6BEF6i4XSqRja7LzHPTBQ7Hl?comment_id=788305865569172), [das auf kollektive knee jerk-Entsetzensreaktion sich verlässt](https://www.facebook.com/ob.boris.palmer/posts/pfbid0xhgzEGKDZWgdCHqKLUpgp6eBMzzcyCfPXYsacbyKp6BEF6i4XSqRja7LzHPTBQ7Hl?comment_id=788305865569172&reply_comment_id=474338504670219).  
 
 # Was sagt der Ombudsmann dazu?
