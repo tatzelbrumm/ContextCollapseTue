@@ -144,7 +144,7 @@ Bezug: [https://taz.de/Asyl-fuer-Obdachlose/!1725994/](https://taz.de/Asyl-fuer-
 #### Meinen nächsten Kommentar hat der PARTEIpolitische Beschwerdeführer nicht mehr gelesen  
 FYI.  
 Aber auch Satiriker haben das Recht auf Humorbefreitheit.  
-[Bild von meiner zufälligen Begegnung mit Mike Godwin](https://www.facebook.com/Tatzelbrumm/posts/pfbid02mk5wQHDdBKdKWtUx5nxj4hfKLBSZo11dPPgVcUYXBNdGym4NFEcendy9WJcN9vT5l) am Flughafen LAX:  
+[Bild von meiner zufälligen Begegnung mit Mike Godwin](https://www.facebook.com/Tatzelbrumm/posts/pfbid02n3tTfnX6BUYArdtwZyaDxgUpMNWNZvyyzZHSrS19aoRsxqYmV9haz31MU3n1Xn68l?comment_id=510040541134887&reply_comment_id=1316968669050748) am Flughafen LAX:  
 >"You remind me of Hitler." — "Very funny."
 
 Dem Troll Benjamin Leder ist dieser Kontext bekannt, Tübinger PARTEIpolitikern allerdings nicht.
