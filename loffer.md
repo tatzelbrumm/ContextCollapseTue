@@ -58,7 +58,7 @@ Das mag jetzt wie ein reichlich konstruiertes Beispiel erscheinen, aber Du hast 
 Nun zur 
 ## Kontextkollision
 
-Ich mache die hier mal als Antwort zu Deinem Video über respektvolle Kommunikation vor der Zeugin Sofie Geisel öffentlich, weil Du als Ombudsmann ja nun wirklich professionell für non-binding arbitration qualifiziert bist.
+Ich mache die hier mal als Antwort zu [Deinem Video über respektvolle Kommunikation]((https://www.facebook.com/christophergohl.fdp/posts/pfbid03KNAPTi6GPadrSaXYrT4EUsvrZWChWx5YveUuJ7uX8QEzH8XeDapnqD1yGprT2Fol)) vor der Zeugin Sofie Geisel öffentlich, weil Du als Ombudsmann ja nun wirklich professionell für [non-binding arbitration](https://en.wikipedia.org/wiki/Non-binding_arbitration) qualifiziert bist.
 
 Sonntag mittag habe ich eine Facebook-Nachricht von einem mir bis dahin unbekannten User bekommen:  
 Sun 12:49 PM  
