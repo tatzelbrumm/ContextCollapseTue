@@ -1,5 +1,5 @@
 # Christopher Gohl,   
-Deine Bemerkung zum politischen Stil gibt mir die Gelegenheit, mal etwas auseinanderzudeklinieren, wie „respektvoller“ Dialog in sein Gegenteil, nämlich Zensur und Exkommunikation, umschlagen kann.
+[Deine Bemerkung zum politischen Stil](https://www.facebook.com/christophergohl.fdp/posts/pfbid03KNAPTi6GPadrSaXYrT4EUsvrZWChWx5YveUuJ7uX8QEzH8XeDapnqD1yGprT2Fol) gibt mir die Gelegenheit, mal etwas auseinanderzudeklinieren, wie „respektvoller“ Dialog in sein Gegenteil, nämlich Zensur und Exkommunikation, umschlagen kann.
 
 Als FDP-Ombudsmann bist Du ja ausgewiesener Experte.
 
